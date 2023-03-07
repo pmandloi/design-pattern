@@ -8,6 +8,6 @@
 <br />
 
 ### Resource Link
-- [Telusko youtube](https://www.youtube.com/watch?v=v9ejT8FO-7I&t=636s)
+- [Christopher Okhravi Youtube](https://www.youtube.com/watch?v=v9ejT8FO-7I&t=636s)
 
 
